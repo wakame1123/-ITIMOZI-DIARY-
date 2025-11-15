@@ -1,0 +1,2 @@
+# -ITIMOZI-DIARY-
+【ITIMOZI DIARY】プライバシーポリシー
